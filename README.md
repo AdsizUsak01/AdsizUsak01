@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AdsizUsak01
 - 👀 I’m interested in coding and gaming
-- 🌱 I’m currently whatever comes to mind
+- 🌱 I’m currently learning whatever comes to mind
 - 📫 How to reach me: @AdsizUsak (Twitter)
 
 <!---
